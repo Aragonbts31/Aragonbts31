@@ -1,0 +1,3 @@
+- 👋 Olá, sou @ Aragonbts31
+- 👀 Estou interessado em ...
+- 🌱 Atualmente estou aprendendo.
