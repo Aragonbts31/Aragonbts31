@@ -1,3 +1,3 @@
 - 👋 Olá, sou @ Aragonbts31
-- 👀 Estou interessado em ...
+- 👀 Estou interessado em desenvolver, sites, apps e games.
 - 🌱 Atualmente estou aprendendo.
